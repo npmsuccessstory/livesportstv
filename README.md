@@ -6,9 +6,9 @@
 Live CMT Music Awards 2023: How to watch live or on demand, stream free online. The fan-voted country music award show will air live from the Moody Center in Austin, Texas, on Sunday and will steam live on CBS and Paramount+ at 8 p.m. ET.
 
 
-<a rel="noopener nofollow" href="https://rebrand.ly/awards-show">🔴LIVE📺CMT Music Awards 2023 Watch Live</a>
+<a rel="noopener nofollow" href="https://rebrand.ly/">🔴LIVE📺CMT Music Awards 2023 Watch Live</a>
 
-<a href="https://rebrand.ly/awards-show" rel="noopener nofollow"><img src="https://sportsdaily.live/awards/treterterte.jpg"></a>
+<a href="https://rebrand.ly/" rel="noopener nofollow"><img src="https://sportsdaily.live/awards/treterterte.jpg"></a>
 
 
 How To Watch The CMT Music Awards 2023: Time, Channel, Live Stream Info.Live from the
